@@ -1,0 +1,3 @@
+To learn more about the font family and its license, visit https://www.fontmirror.com/arlita
+
+Arlita: A font whispering elegance. Its refined serifs and balanced proportions evoke a sense of timeless sophistication, hinting at classic literature and understated luxury.  Arlita''s clean lines speak of quiet confidence, making it ideal for conveying refined messages with effortless grace.  A touch of old-world charm in a modern setting.
